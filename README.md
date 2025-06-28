@@ -1,1 +1,1 @@
-# CNM Resolution 4966 Central Bank of Brazil
+# Resolução CNM 4.966 - Banco Central do Brasil
